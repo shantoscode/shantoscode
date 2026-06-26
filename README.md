@@ -107,9 +107,22 @@ Currently, I am working on academic and personal projects related to statistics,
 
 ---
 
-## 📫 Contact
+## 🌐 Connect with Me
 
-📧 Email: **shanto.ju52@gmail.com**
+📧 **Email:** [shanto.ju52@gmail.com](mailto:shanto.ju52@gmail.com)
+
+💼 **LinkedIn:** [Md. Sanjidur Rahman Shanto](https://www.linkedin.com/in/sanjidur-rahman-shanto-470264351/)
+
+📘 **Facebook:** [Sanjidur Rahman Shanto](https://www.facebook.com/sanjidurrahmanshanto)
+
+📷 **Instagram:** [_msr_shanto](https://www.instagram.com/_msr_shanto)
+
+🐦 **X (Twitter):** [@shanto_5_2](https://x.com/shanto_5_2)
+
+🔬 **ResearchGate:** [Md. Sanjidur Rahman Shanto](https://www.researchgate.net/profile/Md-Sanjidur-Rahman-Shanto)
+
+
+
 
 ---
 
