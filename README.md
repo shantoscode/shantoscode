@@ -109,7 +109,7 @@ Currently, I am working on academic and personal projects related to statistics,
 
 ## 📫 Contact
 
-📧 Email: **sanjid.ju52@gmail.com**
+📧 Email: **shanto.ju52@gmail.com**
 
 ---
 
